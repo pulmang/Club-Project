@@ -1,3 +1,2 @@
 # Club-Project ezez 
-김지후 콧구멍급
-
+써니똥꾸멍지름급
